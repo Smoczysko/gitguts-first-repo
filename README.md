@@ -1,3 +1,4 @@
 # Git Guts
 
-fghdklgdhlkgdfjklfgd
+Dzięki za uwagę Lublin!
+Dobranoc :)
